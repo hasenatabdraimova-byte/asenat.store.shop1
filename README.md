@@ -1,0 +1,1 @@
+# asenat.store.shop1
